@@ -1,1 +1,1 @@
-Bewear the frost giants
+Stay away from the crazies
